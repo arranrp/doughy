@@ -4,7 +4,9 @@
 
 ## Pie
   Icco - http://icco.co.uk
+  
 ## Cake
+  Konditora and cook - http://www.konditorandcook.com
 
 ## Doughnuts
 
