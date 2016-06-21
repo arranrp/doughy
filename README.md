@@ -6,6 +6,7 @@
 * Italian Pizza Connection - http://www.italianpizzaconnection.com/
 * Arancina - https://foursquare.com/v/arancina/4b507788f964a5202a2427e3
 * Fire and stone - http://fireandstone.com
+* Franco Manca - http://www.francomanca.co.uk
 
 ## Pie
 * Pieminister - http://www.pieminister.co.uk
