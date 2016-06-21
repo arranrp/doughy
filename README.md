@@ -25,5 +25,6 @@
 * Flesh & Buns - http://www.bonedaddies.com/restaurant/flesh-and-buns/
 * Jen Café - https://foursquare.com/v/jen-café/4ac518e7f964a5203bab20e3
 * Kowloon Restaurant and Cakeshop - https://foursquare.com/v/kowloon-restaurant-and-cakeshop/4b483c31f964a520754a26e3
-  
+* Ping Pong - http://www.pingpongdimsum.com
+
 ## Pastries 
