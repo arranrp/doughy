@@ -20,6 +20,7 @@
 
 ## Doughnuts
 * Dum Dums Donutterie - http://www.boxpark.co.uk/brand/dum-dums-donutterie/
+* Rinkoff Bakery - http://www.rinkoffbakery.co.uk/products/the-crodough
 
 ## Pancakes
 * My Old Dutch - http://www.myolddutch.com
