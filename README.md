@@ -19,6 +19,7 @@
 * Lola's cupcakes - http://www.lolascupcakes.co.uk/
 
 ## Doughnuts
+* Dum Dums Donutterie - http://www.boxpark.co.uk/brand/dum-dums-donutterie/
 
 ## Pancakes
 * My Old Dutch - http://www.myolddutch.com
