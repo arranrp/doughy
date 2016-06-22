@@ -14,6 +14,8 @@
   
 ## Cake
 * Konditora and cook - http://www.konditorandcook.com
+* Humming Bird Bakery - https://hummingbirdbakery.com
+* Lola's cupcakes - http://www.lolascupcakes.co.uk/
 
 ## Doughnuts
 
