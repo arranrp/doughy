@@ -31,6 +31,7 @@
 ## Pancakes
 * My Old Dutch - http://www.myolddutch.com
 * The Breakfast Club - http://www.thebreakfastclubcafes.com
+* Kensington Crêperie - http://kensingtoncreperie.com
   
 ## Dimsum 
 * Flesh & Buns - http://www.bonedaddies.com/restaurant/flesh-and-buns/
